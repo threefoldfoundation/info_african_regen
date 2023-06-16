@@ -5,3 +5,4 @@
 - [Accommodation](accommodation/accommodation.md)
 - [On-Site & Logistics](onsite/onsite.md)
 - [FAQ](faq/faq.md)
+- [About the Organizers](organizers/organizers.md)
