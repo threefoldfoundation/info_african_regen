@@ -10,6 +10,8 @@ Infinita is the first VC in the world based in a modern charter city, Próspera.
 
 ThreeFold believes that we need a new Internet for humanity and for the planet and promotes the growth and expansion of the ThreeFold Grid, an open source decentralized alternative to today's centralized Internet model. ThreeFold provides a sovereign infrastructure for network states and new cities.
 
+ThreeFold is behind the Eden project, the grounds on which the African Regen Cities & Futures event will be held.
+
 [>> Learn More](https://threefold.io)
 
 ## Silicon Zanzibar
