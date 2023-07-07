@@ -1,0 +1,24 @@
+name: zanzibarguide.ourworld.tf
+on:
+  push:
+    branch: [ master ]
+
+jobs:
+  job_one:
+    name: Deploy
+    runs-on: ubuntu-latest
+    steps:
+    - name: pushing latest change on zanzibarguide.ourworld.tf
+      uses: appleboy/ssh-action@master
+      with:
+        host: zanzibarguide.ourworld.tf
+        username: ${{ secrets.TF_USER }}
+        key: ${{ secrets.TF_SECRET }}
+        port: ${{ secrets.TF_PORT }}
+        script: |
+          cd ~/websites/info_african_regen
+          git log -1
+          git restore .
+          git pull
+          source ~/.cargo/env
+          mdbook build -d docs
