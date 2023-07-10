@@ -6,6 +6,8 @@ Taking place between July 20th and July 23rd, this special gathering in Zanzibar
 
 This resource is meant to be an evolving guide for the gathering in July. If you have things you'd like to add, please [get in touch with Sam](https://t.me/samtaggart).
 
+The official event location is Jungle Paradise Resort & Spa, also known as Mbweni Ruins.
+
 ## Helpful Links
 
 - [Event Page, RSVP, & Payment](https://lu.ma/zanzibar_regen)
