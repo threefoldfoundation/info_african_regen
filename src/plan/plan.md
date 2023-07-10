@@ -4,6 +4,8 @@
 - You can find direct international flights from Istanbul, Dubai, Doha, Paris, Amsterdam, Frankfurt, Zurich, and Rome (note: not every day for all departure points)
 - We would recommend to arrive at least one day before the conference and leave the day after to enjoy the full experience
 
+If you would like, we are happy to arrange airport transfer for you at a reasonable price. Please contact Romany on WhatsApp (+255772453183) and he will sort it out for you.
+
 # Visas and Other Information
 
 - Many countries require a Visa to enter Zanzibar and Tanzania as a whole.
