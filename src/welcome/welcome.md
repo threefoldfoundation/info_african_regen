@@ -4,7 +4,7 @@
 
 Taking place between July 20th and July 23rd, this special gathering in Zanzibar unites top innovators and investors supporting human flourishing, with a special focus on science and technology that will lay the foundation for Africa’s future.
 
-This resource is meant to be an evolving guide for the event in July. If you have things you'd like to add, please [get in touch with Sam](https://t.me/samtaggart).
+This resource is meant to be an evolving guide for the gathering in July. If you have things you'd like to add, please [get in touch with Sam](https://t.me/samtaggart).
 
 ## Helpful Links
 
