@@ -6,7 +6,7 @@ Infinita is the first VC in the world based in a modern charter city, Próspera.
 
 [>> Learn More](https://infinitavc.com/)
 
-## ThreeFold Foundation
+## ThreeFold
 
 ThreeFold believes that we need a new Internet for humanity and for the planet and promotes the growth and expansion of the ThreeFold Grid, an open source decentralized alternative to today's centralized Internet model. ThreeFold provides a sovereign infrastructure for network states and new cities.
 
@@ -22,8 +22,12 @@ Led by the Zanzibar Ministry of Investment & Economic Development alongside lead
 
 [>> Learn More](https://www.siliconzanzibar.com/)
 
-## Charter Cities Institute
+## Charter Cities Institute (Sponsor)
 
 The Charter Cities Institute is a nonprofit dedicated to creating the ecosystem for charter cities, founded on the idea that a fresh approach was necessary to tackle humanity’s most pressing challenges, such as global poverty, climate change and rapid urbanization.
 
 [>> Learn More](https://chartercitiesinstitute.org/)
+
+## Zanzibar ICT Infrastructure Agency (ZICTIA)
+
+ZICTIA is a Government Agency with the mandate of managing ICT Infrastructure, telecommunication tower and its services and ensure to provide affordable, sustainable, secured and convergent ICT infrastructure to the public.
