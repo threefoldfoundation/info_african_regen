@@ -22,7 +22,7 @@ Led by the Zanzibar Ministry of Investment & Economic Development alongside lead
 
 [>> Learn More](https://www.siliconzanzibar.com/)
 
-## Charter Cities Institute (Sponsor)
+## Charter Cities Institute
 
 The Charter Cities Institute is a nonprofit dedicated to creating the ecosystem for charter cities, founded on the idea that a fresh approach was necessary to tackle humanity’s most pressing challenges, such as global poverty, climate change and rapid urbanization.
 
