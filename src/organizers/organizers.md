@@ -14,6 +14,12 @@ Infinita is the first VC in the world based in a modern charter city, Próspera.
 
 [>> Learn More](https://infinitavc.com/)
 
+## Charter Cities Institute
+
+The Charter Cities Institute is a nonprofit dedicated to creating the ecosystem for charter cities, founded on the idea that a fresh approach was necessary to tackle humanity’s most pressing challenges, such as global poverty, climate change and rapid urbanization.
+
+[>> Learn More](https://chartercitiesinstitute.org/)
+
 ## Silicon Zanzibar
 
 Silicon Zanzibar is a public-private initiative to attract and relocate tech companies and workers from across Africa and beyond to the island of Zanzibar.
@@ -21,12 +27,6 @@ Silicon Zanzibar is a public-private initiative to attract and relocate tech com
 Led by the Zanzibar Ministry of Investment & Economic Development alongside leading African tech companies, Silicon Zanzibar aims to transform the island into a leading hub for Pan-African tech companies.
 
 [>> Learn More](https://www.siliconzanzibar.com/)
-
-## Charter Cities Institute
-
-The Charter Cities Institute is a nonprofit dedicated to creating the ecosystem for charter cities, founded on the idea that a fresh approach was necessary to tackle humanity’s most pressing challenges, such as global poverty, climate change and rapid urbanization.
-
-[>> Learn More](https://chartercitiesinstitute.org/)
 
 ## Zanzibar ICT Infrastructure Agency (ZICTIA)
 
