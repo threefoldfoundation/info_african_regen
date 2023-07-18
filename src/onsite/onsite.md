@@ -8,7 +8,7 @@ We would recommend taking local transport as much as possible. There are many tr
 - For tuk tuk services, we would recommend Suleiman (WhatsApp: +255 715 791 186)
 - Motorcycle taxis are typically as simple as flagging someone down on the street
 
-As mentioned in the "Plan Your Trip" section, if you would like, we are happy to arrange airport transfer for you at a reasonable price. Please contact Romany on WhatsApp (+255772453183) and he will sort it out for you.
+As mentioned in the "Plan Your Trip" section, if you would like, we are happy to arrange airport transfer for you at a reasonable price. Please contact Romany on WhatsApp (+255 772 453 183) and he will sort it out for you.
 
 ## Safety
 
