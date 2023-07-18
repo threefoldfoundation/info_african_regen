@@ -10,6 +10,15 @@ Where you head next will depend on your time of arrival. You may go to Mbweni Ru
 
 We will be communicating via [our Telegram group](https://t.me/+U3Bc77YxDs1mZjUy), so keep your eyes peeled there for more info.
 
+Start Times:
+
+- Thursday: 17:00 (5:00pm)
+- Friday: 08:00 (Breakfast)
+- Saturday: 08:00 (Breakfast)
+- Sunday: 08:00 (Breakfast)
+
+Again, please stay tuned on the group, as schedules are subject to change.
+
 ## Meals
 
 As part of the event, we will provide dinner on Thursday at the Ruins, as well as breakfast and lunch on Friday, Saturday, and Sunday. On Friday and Saturday evenings, we will be heading to nearby Stone Town, where you can find a variety of options for meals. As well on Sunday we are planning to have some food at our closing event.
