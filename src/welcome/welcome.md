@@ -10,6 +10,7 @@ The official event location is Jungle Paradise Resort & Spa, also known as Mbwen
 
 ## Helpful Links
 
+- [Telegram Group for Communication](https://t.me/+U3Bc77YxDs1mZjUy)
 - [Event Page, RSVP, & Payment](https://lu.ma/zanzibar_regen)
 - [Event Attendee Questionnaire](https://forms.gle/a4n4iXG1xqK4j5Bj9)
 - [Learn Swahili | Basics](https://www.tripsavvy.com/swahili-or-kiswahili-for-travelers-1454482)

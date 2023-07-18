@@ -6,7 +6,7 @@
 
 If you would like, we are happy to arrange airport transfer for you at a reasonable price. Please contact Romany on WhatsApp (+255 772 453 183) and he will sort it out for you.
 
-# Visas and Other Information
+## Visas and Other Information
 
 - Many countries require a Visa to enter Zanzibar and Tanzania as a whole.
 - Please take a look at [these guidelines](https://visa.immigration.go.tz/guidelines), specifically the list of countries who require referral visa as well as countries which do not require a visa.
@@ -14,3 +14,9 @@ If you would like, we are happy to arrange airport transfer for you at a reasona
 - You can simply apply for / fill out the form for an Ordinary Visa (or Multiple Entry visa for Americans), which satisfies entry for visit, tourism, attending a conference, etc. Most countries receive a single-entry visa ($50 USD) while Americans are required to take a 12-month multiple entry visa for $100 USD.
 - For contact information, you can put either the name of your host or hotel, or if unsure, please put Hitesh Divecha, ZNZ ThreeFold, Mbweni Ruins, Zanzibar, Contact Number +255 779 835 290.
 - It is technically required to have a return ticket or proof of onward travel when entering Tanzania, and in some cases your airline will ask you for this before boarding. If you are unsure of your return date, we would recommend taking a flexible ticket.
+
+## SIM Cards
+
+- We are working on a SIM card sponsorship, but for now we would recommend to pick a SIM card up at the airport.
+- Alternatively, we can organize getting SIM cards for you during the event at cost.
+- Finally, if your phone has eSIM capabilities, you can download the Airalo app and get yourself an eSIM. This option would be a bit more expensive but also very convenient.
