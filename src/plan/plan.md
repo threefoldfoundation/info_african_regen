@@ -15,6 +15,10 @@ If you would like, we are happy to arrange airport transfer for you at a reasona
 - For contact information, you can put either the name of your host or hotel, or if unsure, please put Hitesh Divecha, ZNZ ThreeFold, Mbweni Ruins, Zanzibar, Contact Number +255 779 835 290.
 - It is technically required to have a return ticket or proof of onward travel when entering Tanzania, and in some cases your airline will ask you for this before boarding. If you are unsure of your return date, we would recommend taking a flexible ticket.
 
+## Cash
+
+You can typically exchange cash at the airport for a good rate. There is another place in Stone Town which typically has good rates as well. ATMs typically charge a high fee, unless you have a local or partner bank.
+
 ## SIM Cards
 
 - We are working on a SIM card sponsorship, but for now we would recommend to pick a SIM card up at the airport.
