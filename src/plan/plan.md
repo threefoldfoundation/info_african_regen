@@ -17,7 +17,7 @@ If you would like, we are happy to arrange airport transfer for you at a reasona
 
 ## Cash
 
-You can typically exchange cash at the airport for a good rate. There is another place in Stone Town which typically has good rates as well. ATMs typically charge a high fee, unless you have a local or partner bank.
+You can typically exchange cash at the airport for a good rate. There is also another place in Stone Town which typically has good rates. ATMs typically charge a high fee, unless you have a local or partner bank. Mobile money (e.g. M-Pesa) works in most places as well.
 
 ## SIM Cards
 
