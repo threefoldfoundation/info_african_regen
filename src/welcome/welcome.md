@@ -14,6 +14,8 @@ The official event location is Jungle Paradise Resort & Spa, also known as Mbwen
 
 While we have created some structure around the event in terms of themes and speakers and workshops, some of the best moments of a gathering like this inveitably are those moments of serendipity that happen simply by bringing such a beautiful group of people with like-minded values and visions together. Coming from the African continent and beyond, with all sorts of backgrounds and fields of expertise, 50 of us will gather over four days. Open your mind and your heart and the rest will follow.
 
+Tuko Pamoja. We Are Together.
+
 ## Helpful Links
 
 - [Telegram Group for Communication](https://t.me/+U3Bc77YxDs1mZjUy)
