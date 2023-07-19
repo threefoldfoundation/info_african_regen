@@ -10,13 +10,6 @@ Where you head next will depend on your time of arrival. You may go to Mbweni Ru
 
 We will be communicating via [our Telegram group](https://t.me/+U3Bc77YxDs1mZjUy), so keep your eyes peeled there for more info.
 
-Start Times:
-
-- Thursday: 17:00 (5:00pm)
-- Friday: 08:00 (Breakfast)
-- Saturday: 08:00 (Breakfast)
-- Sunday: 08:00 (Breakfast)
-
 Again, please stay tuned on the group, as schedules are subject to change.
 
 ## Meals
