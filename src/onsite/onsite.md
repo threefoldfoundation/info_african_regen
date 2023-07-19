@@ -14,7 +14,14 @@ Again, please stay tuned on the group, as schedules are subject to change.
 
 ## Meals
 
-As part of the event, we will provide dinner on Thursday at the Ruins, as well as breakfast and lunch on Friday, Saturday, and Sunday. On Friday and Saturday evenings, we will be heading to nearby Stone Town, where you can find a variety of options for meals. As well on Sunday we are planning to have some food at our closing event.
+As part of the event, we will provide the following meals:
+
+- Thursday: Dinner @ Mbweni Ruins
+- Friday: Breakfast @ Mbweni Ruins, Lunch & Light Dinner @ Fumba
+- Saturday: Breakfast & Lunch @ Mbweni Ruins & Stone Town Dinner
+- Sunday: Breakfast, Lunch, & Light Dinner @ Mbweni Ruins
+
+Otherwise you are welcomed to explore nearby Mbweni but please eat out your own personal assessment. Restaurants (and street food) are generally safe and up to sanitary standards, but it is of course possible to become ill.
 
 ## Transport
 
