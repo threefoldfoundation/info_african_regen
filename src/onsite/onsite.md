@@ -14,14 +14,18 @@ Again, please stay tuned on the group, as schedules are subject to change.
 
 ## Meals
 
-As part of the event, we will provide the following meals:
+As part of the event, we will provide the following meals (buffets):
 
 - Thursday: Dinner @ Mbweni Ruins
 - Friday: Breakfast @ Mbweni Ruins, Lunch & Light Dinner @ Fumba
 - Saturday: Breakfast & Lunch @ Mbweni Ruins & Stone Town Dinner
 - Sunday: Breakfast, Lunch, & Light Dinner @ Mbweni Ruins
 
-Otherwise you are welcomed to explore nearby Mbweni but please eat out your own personal assessment. Restaurants (and street food) are generally safe and up to sanitary standards, but it is of course possible to become ill.
+Any food ordered off the menu will be added to a tab and we ask you to cover that cost.
+
+Otherwise you are welcomed to explore nearby Mbweni but please eat out your own personal assessment. Restaurants (and street food) are generally safe and up to sanitary standards, but please judge for yourself.
+
+For beverages, we will provide water during the event. Any other beverages (outside of a few "happy hours" which will be made clear) would be at your cost.
 
 ## Transport
 
