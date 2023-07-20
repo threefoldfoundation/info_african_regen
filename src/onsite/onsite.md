@@ -29,7 +29,7 @@ On Saturday evening, we will head to Stone Town where there will be a variety of
 
 *Outside restaurants (and street food) are generally safe and up to sanitary standards, but please assess for yourself.*
 
-For beverages, we will provide water during the event for you to take for your own personal water bottles. Any other beverages (outside of a few "happy hours" which will be made clear) including bottled water, coffee, juices, soft drinks, and alcohol, would be at your cost.
+For beverages, we will provide water dispensers during the event (at the restaurant and at the ruins) for you to take for your own personal water bottles. Any other beverages (outside of a few "happy hours" which will be made clear) including bottled water, coffee, juices, soft drinks, and alcohol, would be at your cost.
 
 If you feel so inclined, you are welcomed to give tips to the staff. You can find the tip box at the restaurant cash register.
 
