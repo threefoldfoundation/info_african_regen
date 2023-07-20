@@ -31,6 +31,8 @@ On Saturday evening, we will head to Stone Town where there will be a variety of
 
 For beverages, we will provide water dispensers during the event (at the restaurant and at the ruins) for you to take for your own personal water bottles. Any other beverages (outside of a few "happy hours" which will be made clear) including bottled water, coffee, juices, soft drinks, and alcohol, would be at your cost.
 
+Please pay your bill before you depart the event.
+
 If you feel so inclined, you are welcomed to give tips to the staff. You can find the tip box at the restaurant cash register.
 
 ## Transport
