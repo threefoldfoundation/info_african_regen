@@ -27,6 +27,8 @@ Otherwise you are welcomed to explore nearby Mbweni but please eat out your own 
 
 For beverages, we will provide water during the event. Any other beverages (outside of a few "happy hours" which will be made clear) would be at your cost.
 
+If you feel so inclined, you are welcomed to give tips to the staff. You can find the tip box at the restaurant cash register.
+
 ## Transport
 
 We would recommend taking local transport as much as possible. There are many transportation options on the island, including private van, tuk tuk (bajaj), and motorcycle taxi (boda boda). In addition, there are local buses called dala dalas, but they are a bit less convenient and harder to predict.
