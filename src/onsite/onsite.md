@@ -39,6 +39,10 @@ We would recommend taking local transport as much as possible. There are many tr
 
 As mentioned in the "Plan Your Trip" section, if you would like, we are happy to arrange airport transfer for you at a reasonable price. Please contact Romany on WhatsApp (+255 772 453 183) and he will sort it out for you.
 
+## Spa Services
+
+There is a spa on-site offering a variety of services. If interested, please contact the front desk.
+
 ## Safety
 
 The island is very safe although theft can be common, so please be mindful of where you keep your valuables and do not go out on your own at night.
