@@ -12,7 +12,7 @@ We will be communicating via [our Telegram group](https://t.me/+U3Bc77YxDs1mZjUy
 
 Again, please stay tuned on the group, as schedules are subject to change.
 
-## Meals
+## Food & Beverage
 
 As part of the event, we will provide the following meals:
 
