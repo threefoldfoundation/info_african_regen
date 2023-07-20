@@ -14,18 +14,22 @@ Again, please stay tuned on the group, as schedules are subject to change.
 
 ## Meals
 
-As part of the event, we will provide the following meals (buffets):
+As part of the event, we will provide the following meals:
 
-- Thursday: Dinner @ Mbweni Ruins
-- Friday: Breakfast @ Mbweni Ruins, Lunch & Light Dinner @ Fumba
-- Saturday: Breakfast & Lunch @ Mbweni Ruins & Stone Town Dinner
-- Sunday: Breakfast, Lunch, & Light Dinner @ Mbweni Ruins
+- Thursday: Dinner Buffet @ Mbweni Ruins (Drinks Provided)
+- Friday: Breakfast Buffet @ Mbweni Ruins, Lunch @ Fumba
+- Saturday: Breakfast & Lunch Buffets @ Mbweni Ruins
+- Sunday: Breakfast & Lunch Buffets, & Light Dinner @ Mbweni Ruins (Drinks)
 
-Any food ordered off the menu will be added to a tab and we ask you to cover that cost.
+Any food ordered separately or off the menu will be added to a tab and we ask you to cover that cost.
 
-Otherwise you are welcomed to explore nearby Mbweni but please eat out your own personal assessment. Restaurants (and street food) are generally safe and up to sanitary standards, but please judge for yourself.
+On Friday evening after Fumba Town, we will head to an oceanside restaurant / bar called Kwetu Kwenu Chill, where you will be asked to cover your own food and beverage.
 
-For beverages, we will provide water during the event. Any other beverages (outside of a few "happy hours" which will be made clear) would be at your cost.
+On Saturday evening, we will head to Stone Town where there will be a variety of options for you to choose from, including the local evening food market.
+
+*Outside restaurants (and street food) are generally safe and up to sanitary standards, but please assess for yourself.*
+
+For beverages, we will provide water during the event for you to take for your own personal water bottles. Any other beverages (outside of a few "happy hours" which will be made clear) including bottled water, coffee, juices, soft drinks, and alcohol, would be at your cost.
 
 If you feel so inclined, you are welcomed to give tips to the staff. You can find the tip box at the restaurant cash register.
 
