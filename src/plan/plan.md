@@ -21,6 +21,5 @@ You can typically exchange cash at the airport for a good rate. There is also an
 
 ## SIM Cards
 
-- We are working on a SIM card sponsorship, but for now we would recommend to pick a SIM card up at the airport.
-- Alternatively, we can organize getting SIM cards for you during the event at cost.
-- Finally, if your phone has eSIM capabilities, you can download the Airalo app and get yourself an eSIM. This option would be a bit more expensive but also very convenient.
+- We would recommend to pick a SIM card up at the airport. Alternatively, we can organize getting SIM cards for you during the event at cost.
+- If your phone has eSIM capabilities, you can download the Airalo app and get yourself an eSIM. This option would be a bit more expensive but also very convenient.

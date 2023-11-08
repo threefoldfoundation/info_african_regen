@@ -12,24 +12,21 @@ Please note this covers only the costs of the event, and does not include accomm
 
 ### Do you offer financial assistance?
 
-It is our desire to be as inclusive as possible. We may have limited opportunities to provide financial assistance. Please reach out to Sam (sam@threefold.io) if this is relevant for you.
+It is our desire to be as inclusive as possible. We have limited opportunities to provide financial assistance. Please reach out to [Sam](https://t.me/samtaggart) if this is relevant for you.
 
 ### Is this event right for me?
 
-Our event is right for you if you are interested in and/or involved in African development, particularly around new cities, charter cities, free zones, technological innovation, and the arts.
+Our event is right for you if you are interested in and/or involved in African development, free zones, (regenerative) technological innovation, supporting human flourishment and helping our planet.
 
 ### What can I expect from the event?
 
-The 4-day event will feature speakers and unconference-style workshops on topics such as:
-
-- The future of city development on the African continent, including special economic zones and charter cities
-- ​Technological innovation & development (e.g. clean energy, internet & communication infrastructure, crypto/finance)
+The 4-day event will feature speakers and unconference-style workshops mainly focused on ThreeFold and OurWorld, other projects in attendance, regenerative technology, all in the African context.
 
 ​The event is open to contributions to speak, lead workshops, pitch competition - you will have opportunities to speak!
 
 ### Where can I stay? What are the accommodation options?
 
-On-site we have hotel rooms and shared apartments, with limited availability. Please fill out [this questionnaire](https://forms.gle/a4n4iXG1xqK4j5Bj9) and we will get you situated.
+Please get in touch with [Sam](https://t.me/samtaggart) to learn more.
 
 ### Is Zanzibar safe?
 
@@ -43,13 +40,13 @@ Safely-washed and prepared food is available at the hotel on the grounds of the 
 
 Zanzibar is a predominantly muslim island and therefore it’s best to respect by not wearing anything too exposing or revealing. This goes for any gender. On the event grounds themselves, we do not have any specific dress code.
 
-### What is the weather like at the end of July?
+### What is the weather like in November?
 
-Zanzibar is a tropical island and it is quite warm all year. July is one of the cooler months and temperatures will be somewhere around 26º C (79º F) – it shouldn’t be much cooler but it could be a bit warmer, so we’d recommend taking a look at the forecast in the days before you travel. Keep in mind that we will try to keep the event to shaded areas and indoors, but it can get quite hot in the sun.
+Zanzibar is a tropical island and it is quite warm all year. November can be warm, humid, and rainy. This time is called the 'short rains.' These are typically lighter than the main rains of May and June, and less consistent. Still, better to be prepared.
 
 ### I would like to stay longer, after the event is over. Is anything being organized?
 
-We invite those who would like to stay longer to stay with us at the apartments or the hotel. You can feel free to work, co-work, and co-create. We can continue the conversations from the event and take action together. Conversely, you are welcome to stay and explore the island. We will provide some recommendations in the coming weeks and share.
+We invite those who would like to stay longer to stay with us at the apartments or the hotel. You can feel free to work, co-work, and co-create. We can continue the conversations from the event and take action together. Conversely, you are welcome to stay and explore the island.
 
 ### I have more questions.
 

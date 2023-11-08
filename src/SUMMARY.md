@@ -7,4 +7,3 @@
 - [On-Site & Logistics](onsite/onsite.md)
 - [FAQ](faq/faq.md)
 - [Photo Gallery](photos/photos.md)
-- [About the Organizers](organizers/organizers.md)

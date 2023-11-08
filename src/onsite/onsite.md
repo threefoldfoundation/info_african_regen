@@ -2,11 +2,11 @@
 
 ## What To Do When You Arrive at the Event
 
-Our gathering is located at Jungle Paradise Resort & Spa, also known as Mbweni Ruins, the site of the Eden community project.
+Our gathering is located at Jungle Paradise Resort & Spa, also known as Mbweni Ruins.
 
 When you arrive at the entrance, please head to the check-in counter and state your name. You'll receive a bracelet which will identify you as a conference attendee, and will provide you entry over the four days.
 
-Where you head next will depend on your time of arrival. You may go to Mbweni Ruins where the dinner on the first night and all of main sessions will be held. Or you may head through the grounds to the restaurant area.
+Where you head next will depend on your time of arrival.
 
 We will be communicating via [our Telegram group](https://t.me/+U3Bc77YxDs1mZjUy), so keep your eyes peeled there for more info.
 
@@ -14,26 +14,17 @@ Again, please stay tuned on the group, as schedules are subject to change.
 
 ## Food & Beverage
 
-As part of the event, we will provide the following meals:
-
-- Thursday: Dinner Buffet @ Mbweni Ruins (Drinks Provided)
-- Friday: Breakfast Buffet @ Mbweni Ruins, Lunch @ Fumba
-- Saturday: Breakfast & Lunch Buffets @ Mbweni Ruins
-- Sunday: Breakfast & Lunch Buffets, & Light Dinner @ Mbweni Ruins (Drinks)
+As part of the event, we will provide some meals.
 
 Any food ordered separately or off the menu will be added to a tab and we ask you to cover that cost.
 
-On Friday evening after Fumba Town, we will head to an oceanside restaurant / bar called Kwetu Kwenu Chill, where you will be asked to cover your own food and beverage.
-
-On Saturday evening, we will head to Stone Town where there will be a variety of options for you to choose from, including the local evening food market.
-
-*Outside restaurants (and street food) are generally safe and up to sanitary standards, but please assess for yourself.*
-
-For beverages, we will provide water dispensers during the event (at the restaurant and at the ruins) for you to take for your own personal water bottles. Any other beverages (outside of a few "happy hours" which will be made clear) including bottled water, coffee, juices, soft drinks, and alcohol, would be at your cost.
+For beverages, we will provide water dispensers during the event for you to take for your own personal water bottles. Any other beverages (outside of a few "happy hours" which will be made clear) including bottled water, coffee, juices, soft drinks, and alcohol, would be at your cost.
 
 Please pay your bill before you depart the event.
 
 If you feel so inclined, you are welcomed to give tips to the staff. You can find the tip box at the restaurant cash register.
+
+*Outside restaurants (and street food) are generally safe and up to sanitary standards, but please assess for yourself.*
 
 ## Transport
 
