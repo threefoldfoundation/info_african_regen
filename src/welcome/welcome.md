@@ -1,6 +1,6 @@
 # Welcome | Karibu
 
-![Image](znz_header.png)
+![Image](regen_handbook_header.png)
 
 Taking place between November 16 and November 19, this special gathering in Zanzibar unites top innovators and investors supporting human flourishing, with a special focus on science and technology that will lay the foundation for Africa’s future.
 
